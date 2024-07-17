@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm currenty working As  System Administrator
+I'm currenty working As  Senior System Administrator
 
 
 ## 🌐 Socials:
